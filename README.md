@@ -1,8 +1,9 @@
 
 
 # ChatGPT 学习手册
+[持续更新ChatGPT的相关资讯动态,研究报告,赚钱案例,实用场景等12个板块内容,永久免费在线查看,欢迎收藏转发支持,文末有惊喜](https://nujuo8y1qx.feishu.cn/docx/AdqEdlT52oBiawx6Vv2cc89DnLb "悬停显示")
 
-https://nujuo8y1qx.feishu.cn/docx/AdqEdlT52oBiawx6Vv2cc89DnLb
+
 
 ## 一、注册相关流程及问题
 图文注册路程
