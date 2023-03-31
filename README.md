@@ -5,6 +5,9 @@
 
 ![image](https://user-images.githubusercontent.com/129516582/229136994-fba169fe-8e93-4454-93e5-30a6542fc859.png)
 
+[持续关注并更新AIGC的相关资讯动态,研究报告,赚钱案例,常见问题,永久免费在线查看,无收费内容,目标是成为最大的免费 AIGC学习社群，免费学 AI 绘画， AI 写作](https://nujuo8y1qx.feishu.cn/docx/RleadAwrAo4O1FxhuoGcDV86nBe "悬停显示")
+<img width="912" alt="image" src="https://user-images.githubusercontent.com/129516582/229137625-f0767585-e313-4d68-8ee0-54a525ebdc9a.png">
+
 
 ## 一、注册相关流程及问题
 图文注册路程
